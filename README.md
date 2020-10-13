@@ -1,1 +1,1 @@
-pasuta
+kuppa
